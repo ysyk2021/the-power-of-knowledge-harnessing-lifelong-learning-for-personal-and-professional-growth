@@ -1,5 +1,4 @@
-Chapter 6: Learning for Social Impact: Examples of Individuals Who Have Used Their Knowledge for Social Change
-==============================================================================================================
+# Examples of Individuals Who Have Used Their Knowledge for Social Change
 
 Throughout history, individuals have used their knowledge and education to make a positive impact on society. In this chapter, we will explore examples of individuals who have used their knowledge for social change.
 

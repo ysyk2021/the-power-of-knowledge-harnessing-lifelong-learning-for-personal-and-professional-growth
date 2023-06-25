@@ -1,5 +1,4 @@
-Chapter 4: Learning for Personal Growth: Setting Goals and Tracking Progress
-============================================================================
+# Setting Goals and Tracking Progress
 
 Lifelong learning is not only essential for professional growth, but also for personal growth. In this chapter, we will explore strategies for setting goals and tracking progress in lifelong learning for personal growth.
 

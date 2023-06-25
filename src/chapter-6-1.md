@@ -1,5 +1,4 @@
-Chapter 6: Learning for Social Impact: Using Knowledge to Make a Positive Impact on Society
-===========================================================================================
+# Using Knowledge to Make a Positive Impact on Society
 
 Learning can be a powerful tool for social impact, enabling individuals to use their knowledge and skills to create positive change in society. In this chapter, we will explore strategies for using lifelong learning for social impact.
 

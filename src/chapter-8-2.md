@@ -1,5 +1,4 @@
-Chapter 8: Overcoming Obstacles to Lifelong Learning: Strategies for Making Learning a Habit
-============================================================================================
+# Strategies for Making Learning a Habit
 
 While lifelong learning offers numerous benefits, there may be obstacles that prevent individuals from pursuing ongoing education and development. In this chapter, we will explore strategies for overcoming common obstacles to lifelong learning and making learning a habit.
 

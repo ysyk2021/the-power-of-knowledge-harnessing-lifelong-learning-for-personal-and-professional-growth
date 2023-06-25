@@ -1,5 +1,4 @@
-Chapter 7: Tools and Resources for Lifelong Learning: Technology and Resources for Learning
-===========================================================================================
+# Technology and Resources for Learning
 
 In today's digital age, technology has revolutionized the way we learn. There are many tools and resources available to support lifelong learning. In this chapter, we will explore some of the best technology and resources for learning.
 
