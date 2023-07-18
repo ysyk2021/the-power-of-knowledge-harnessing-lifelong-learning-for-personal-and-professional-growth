@@ -8,5 +8,4 @@ In this book, you'll learn how to cultivate a growth mindset, develop critical t
 
 Whether you're looking to advance your career, explore new interests, or simply become a better version of yourself, "The Power of Knowledge" has something for everyone. With its inspiring stories, practical advice, and actionable strategies, this book is a must-read for anyone committed to lifelong learning and personal growth. Get ready to unlock your full potential and harness the power of knowledge!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
