@@ -1,4 +1,4 @@
-Chapter: Defining the Power of Knowledge
+Defining the Power of Knowledge
 ========================================
 
 Knowledge is a potent force that has the potential to transform lives, shape societies, and drive personal and professional growth. This chapter delves into the concept of knowledge and explores its inherent power in various aspects of our lives.

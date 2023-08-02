@@ -1,4 +1,4 @@
-Chapter: Examples of Individuals Using Knowledge for Social Change
+Examples of Individuals Using Knowledge for Social Change
 ==================================================================
 
 In the pursuit of personal and professional growth, individuals often acquire knowledge that can be harnessed for social change. This chapter explores inspiring examples of individuals who have utilized their knowledge to bring about positive transformations in society. These individuals have used their expertise, passion, and commitment to address social issues, drive advocacy, and empower communities.

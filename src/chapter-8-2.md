@@ -1,4 +1,4 @@
-Chapter: Strategies for Making Learning a Habit
+Strategies for Making Learning a Habit
 ===============================================
 
 Developing a habit of lifelong learning is key to harnessing the power of knowledge for personal and professional growth. This chapter explores effective strategies that can help individuals make learning a consistent and rewarding part of their lives.

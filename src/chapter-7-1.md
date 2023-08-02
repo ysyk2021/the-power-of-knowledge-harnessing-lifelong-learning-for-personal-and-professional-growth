@@ -1,4 +1,4 @@
-Chapter: Technology and Resources for Learning
+Technology and Resources for Learning
 ==============================================
 
 In today's digital age, technology has revolutionized the way we access knowledge and engage in lifelong learning. This chapter explores the diverse range of technologies and resources available for learning, empowering individuals to harness the power of knowledge for personal and professional growth.
