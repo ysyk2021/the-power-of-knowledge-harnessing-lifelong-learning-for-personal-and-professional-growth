@@ -1,4 +1,4 @@
-Chapter: Examples of Individuals Who Have Used Their Knowledge for Social Change
+Examples of Individuals Who Have Used Their Knowledge for Social Change
 ================================================================================
 
 Introduction
