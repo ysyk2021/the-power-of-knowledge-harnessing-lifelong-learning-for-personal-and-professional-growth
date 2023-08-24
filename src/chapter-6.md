@@ -1,5 +1,3 @@
-Chapter 6: Learning for Social Impact
-=====================================
 
 Lifelong learning can also be a powerful tool for social impact, enabling individuals to use their knowledge and skills to make positive changes in society. In this chapter, we will explore strategies for learning for social impact, as well as examples of individuals who have used their knowledge for social change.
 

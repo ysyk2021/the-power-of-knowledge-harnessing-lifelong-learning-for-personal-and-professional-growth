@@ -1,5 +1,3 @@
-Chapter 7: Tools and Resources for Lifelong Learning
-====================================================
 
 In this chapter, we will explore the various tools and resources available for lifelong learning. We will discuss the role of technology in learning, as well as ways to find and access quality educational opportunities.
 

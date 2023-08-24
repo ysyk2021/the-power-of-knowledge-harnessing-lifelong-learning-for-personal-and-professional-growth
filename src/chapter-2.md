@@ -1,5 +1,3 @@
-Chapter 2: Learning as a Mindset
-================================
 
 Learning is not just a series of actions, but also a mindset. In this chapter, we will explore the importance of embracing a mindset of lifelong learning for personal and professional growth.
 

@@ -1,5 +1,3 @@
-Chapter 8: Overcoming Obstacles to Lifelong Learning
-====================================================
 
 Lifelong learning can be challenging, with various obstacles that can hinder individuals from pursuing continuous education. In this chapter, we will identify common obstacles to lifelong learning and explore strategies for overcoming them.
 
